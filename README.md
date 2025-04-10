@@ -7,6 +7,3 @@ My first repository
 Hayop si Ramos
 Takte
 ako si alden
-jacob
-ako
-pogiiiiikooo
