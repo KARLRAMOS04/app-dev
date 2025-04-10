@@ -7,3 +7,4 @@ My first repository
 Hayop si Ramos
 Takte
 Daming alam
+Hirap naman 
